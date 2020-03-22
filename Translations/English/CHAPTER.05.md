@@ -6,82 +6,82 @@
 
 July, 2019
 
-*You just couldn't afford to miss this book...*
+*You just can't afford to miss this book...*
 
 https://b.watch
 
 ---
 
-## 5. Why are there only a few people who use this magical strategy?
+## 5. Why are there so few people using this magical strategy?
 
-When you read this, you will inevitably become more and more curious, or even simply suspicious:
+At this point, you must have become more and more curious, or even simply suspicious:
 
-> Since the decision-making strategy is so magical, even the ordinary people get rid of the only reliable channel of class solidification, how few people finally adopt this strategy? !
+> If this regular investing strategy is so magical that it's the only way to escape class solidification for ordinary people, why do so few people adopt this strategy? !
 
-Let us first look at an obvious fact:
+First of all, let us look at an obvious fact:
 
-> In China, the vast majority of families is desperately destined to invest!
+> In China, most families are working around the clock conducting regular investment!
 
-In fact, looking at the world, it may be almost the same... However, for the vast majority of people, the target of the invest is the property. What does this mean? This shows that virtually everyone has the ability to invest.
+In fact, all over the world, it's pretty much the same case... However, for the vast majority of people, this regular investment is realty. What does this say? Virtually everyone has the ability to invest regularly.
 
-It's a pity that people all over the world have been swayed by banks – people use the most productive period of their lives, which is, for twenty or thirty years, on the premise of paying huge interest from bank loans, people invest a real estate, and live a burden life like a snail.
+Unfortunately, people all over the world are deceived by banks – spending the most productive twenty or thirty years of their lives investing in realty regularly paying huge interest for bank loans and live the life of a slave.
 
-The vast majority of these people claim to be or are called "house slaves" - even in an era of good economic conditions, buying a house is not a good experience. In essence, they are not slaves to the house, they are slaves to the bank. It’s terrible to say it in essence. These house slaves have never seriously examined the truth:
+Most of these people call themselves "house slaves" - even when the economy is good, buying a house is not a good experience. In essence, they are not slaves to the house, they are slaves to the bank. It’s terrible to say it in essence. These house slaves have never seriously examined the truth which is:
 
-> They actually bought a set of real estate in the most productive time of their lives by using the money that could buy two houses. The sum of interest on mortgages in the past two or three decades is always the same as the value of the property. This is the result of bank's actuaries who have worked hard to calculate the results in advance.
+> What they actually are doing is they spend the most productive years of their life paying the amount of two houses for only one house - the sum of interest on mortgages in the past two or three decades is always the same as the value of the property. This is the job of bank's actuaries.
 
-Nothing is not irritating.
+You don't get mad without comparison.
 
-You and your classmates, two people, made a different choice 18 years ago, while you chose to buy a house by loan - you wanted to invest in real estate, your classmates chose to invest in Moutai stocks - because he is a fool, so he can only use the free advice from the smartest people on the market... 18 years later, what do you think of it?
+You and your classmate made different choices 18 years ago, while you chose to buy a house by loan; your classmate chose to invest in Moutai stocks - he is a fool, so he can only use the free advice of the smartest people on the market... 18 years later, what happens?
 
-Suppose you bought a property in Beijing. The price increase in Beijing is the strongest in the country in these years. The annual compound growth is about 18%. After rounding off, the value of your property that has increased in the past 18 years is 20 times! It looks really amazing! However, in fact, it is not so optimistic. Because you need to pay interest, it is equivalent to buying a property at twice the price, so you can account for 10 times instead of 20 times. Also, in this 18 years, the loan totaled 30 years. In the first few years, you paid off the principal, but at least half of the interest is not paid back. That is, you actually have just 3/4 of the investment in 10 times. That is 7.5 times... This is still the case when you entered the market very well before the house price takes off! Those who started to invest in real estate in 2018, looking into 2036, no one can guarantee that there will be such a high return?
+Suppose the house you bought is located in Beijing. The increase of the property price in Beijing is the highest in the country these years. The annual compound growth is about 18%. After rounding off, the value of your property that has increased in the past 18 years is 20 times! Amazing! However, in fact, it is not so optimistic. Because you need to pay interest, it is equivalent to buying a property twice the price, so your gain is 10 times instead of 20. Also, it's only 18 years, the loan is 30 years in total. In the first few years, you paid off the principal, but at least half of the interest has not been paid yet which means your gain is only 3/4 of the 10 times, i.e. 7.5 times... This is the scenario when you entered the market before the house price sky-rockets! Those who only started investing regularly in real estate in 2018, even looking into 2036, can't except a return that high.
 
-What about your classmates? The stock of Moutai in his hands has grown 180 times in the past 18 years! This is equivalent to an annual compound growth of 33.45%! And your stupid classmate is not only committed to the lowest price at the beginning, but has gradually decided to invest in these years. Then, his growth will not be as much as 180 times, but it is definitely about 40 times. ......
+Now let's see how your classmate was doing. The stock of Moutai in his hands has grown 180 times in the past 18 years! This is equivalent to an annual compound growth of 33.45%! And your stupid classmate didn't invest all at once at the lowest price at the very beginning, but invested regularly during these 18 years. Then, his gain will not be as much as 180 times, but it is definitely about 40 times. ......
 
-This comparison looks a bit too much, right? In fact, there is still more despair thing that can suffocate you:
+This comparison is pretty harsh, right? In fact, it is even more devestating that it can suffocate you:
 
 > - Your property is indeed an asset, but its liquidity is close to zero;
-> - The stock of your classmates is also counted as an asset, but its liquidity is almost 100%...
+> - The stock of your classmate is also  an asset, but its liquidity is almost 100%...
 
-**For assets, liquidity is the decisive factor.** If there is no liquidity, no matter how valuable the assets are, it is similar like even if there is a bullet in your pistol when facing the enemy, but the bullet is stuck in the cartridge holder and can't shoot it almost... This is the real reason why the income of your stupid classmate is 40 times, because the liquidity of his assets is too good!
+**For assets, liquidity is the decisive factor.** If the liquidity is zero, no matter how valuable the assets are, it is pretty much like that you have bullets in your pistol when facing the enemy, but the bullets are stuck in the cartridge holder ... This is the real reason why the gains of your stupid classmate is rock-hard 40 times. Because the liquidity of his assets is perfect!
 
-Although this comparison is really irritating, this comparison probably does not exist, because the greater probability is that your stupid classmates are unlikely to vote for Moutai stocks – in fact, for the past 18 years, there are only a handful of people who decide to invest in Moutai stocks. Such a tragedy is hard to happen on your side...
+Although this comparison is really irritating, it probably won't happen, because the greater probability is that your stupid classmate is very unlikely to invest in Moutai stocks regularly – in fact, in the past 18 years, there are only a handful of people who invested in Moutai stocks regularly. It's very rare for such a tragedy to happen around you...
 
-why? Because the **Regular Investing** is actually a society behavior, even a social behavior.
+Why? Because **Regular Investing** is actually a societial behavior, even a social behavior.
 
-Your idiot friend won't have a future that makes you angry and desperate. In terms of probability, his fate should be similar to you, because you are all social animals, you all live in the same society, and you are all under strong society  Influence... You see, you have to get married, and he wants to get married, isn't he? Why are you buying a house? That is not your idea, it is the idea of your wife's mother, because if you do not buy a house, your mother-in-law will not trust her daughter to marry you! Do you think your idiot classmate's mother-in-law is different? The probability of nine out of ten is exactly the same in this respect. Most mothers in this society can't safely marry their daughter to a man who can't afford to buy a house. This doesn't blame them. The key point is that everyone is the same!
+Your idiotic friend won't have a future that makes you angry and desperate. Most likely, his fate should be similar to yours, because you are both social animals. You all live in the same society, and you are all under strong societial influence... You needs to get married, and he needs to get married, right? Why do you need to buy a house? That is not your idea but the idea of your monther-in-law's. If you do not have a house, your mother-in-law will not marry her daughter to you! Do you think your idiotic classmate's mother-in-law is any different? ninty percent of the probability is exactly no. Most mothers in this society will not marry their daughter to a man who can't afford to buy a house. It's not their fault. Everyone is the same!
 
-Therefore, in the big cities such as Beijing, Shanghai, and Shenzhen, the most common ones are those who are burdened with their own assets. When they calculate their own assets, including real estate, they have a tens of millions. However, their pockets are cleaner than their faces. There are few banknotes available for them to spend, and there is a large amount of bank interest to pay back every month. If they have children, it will be even worse. If their property is a deliberately chosen school district, it will be miserable. Although it is definitely not a poor person in terms of assets, the family is crowded in a dozen or twenty square meters. Lived in joy.
+This is why in the big cities like Beijing, Shanghai, and Shenzhen, most people are debtors. They do worth tens of millions including real estate, but their pockets are empty. They have few disposable cash and they have large amounts of interest to pay to the banks every month. It would be worse if they have kids and it keeps going worse if their property is located in a school district. Although they are definitely not poor considerting they own property, their life is miserable squezzing in a nest of dozen or twenty square meters.
 
-The strategy of voting is divided into the following points:
+The strategy of regular investing includes the following points:
 
-> - What is the target?
-> - How long is it in the long run?
-> - How long is the interval regularly?
-> - At least how much is invested in each time?
-> - What should I do if there is an accident?
+> - What is the investment item?
+> - How long is long-term?
+> - What is the interval of regular?
+> - What is the minimum amount of each investment?
+> - What should I do if in the event of surprises?
 
-Regular Investment in real estate has the huge socialization drive - the target is almost no need to think about; long time has been counted by the bank's actuary, but people who unconsciously began to invest will never care about this matter, because they think that everyone is borrowing from the bank, and everyone is instalment, usually 30 years in a row; the interval is once a month is also the bank's fixed monthly; the amount of investment is reversed; for the better house, the amount is higher, while for the worse house, the amount is lower; what happens when there is an accident? Hey, life is always full of surprises, then let's talk about it then! In fact, it is true. When there is an accident, even if you borrow money, you have to pay back the mortgage...
+You have enormous societial drive to regular invest in real estate - you don't even need to think about the item; Bank's actuaries have figured the long-term for you, and people don't care about all these who have unconsciously began to invest regularly, because everyone is this: borrowing from the bank, repaying by instalments, usually 30 years ; on a monthly basis; calculate reversely and you have the amount of each investment; for a good house, the amount is high, while for a bad house, the amount is low; what happens when there is an accident? Well, life is always full of surprises, deal with it when it happens! The fact is when there is an accident, even if you borrow money to deal with the accident, you need to pay loan...
 
-The target on the Regular Investing market is different. The consensus of socialization is basically:
+The item on the Regular Investing market is different. The consensus of socialization is basically:
 
-> - "Isn't that reliable?"
-> - "How big is the risk!"
-> - "I feel too unreal!"
+> - "Isn't that shaky?"
+> - "How risky is that!"
+> - "It cann't be true!"
 > - "Hey, I just can't figure it out!"
 
 Even more shocking is:
 
-> - "Don't you know? someone is the stock loser... and even jumped from the top roof of the building!"
+> - "You didn't know? That guy lost all his money in the stock market and jumped from the roof of a building !"
 
-For the vast majority of people, investing in the stock market is bound to be speculative. They have heard that there is no good consequence in the speculation! As for what is Regular Investment, why is it fixed, and how to invest, most people simply don’t know, because there is no way to be successful enough to be convincing.
+For most people, investing in the stock market is just being speculative and no one ends up good being speculative! That it! As to what is Regular Investing; why conduct regular investing; and how to invest regularly, most people simply don’t know. Because there is no convincing successful examples around.
 
-Under the influence of such powerful socialization, the number of people who choose to invest in stocks or securities can only be very few.
+Under the influence of such powerful socialization, the number of people who choose to invest in stocks or securities regularly can only be very few.
 
-In the process of constantly changing the world of the Internet, the loneliness that such a fixed-agent has been destined for may be greatly relieved. The emergence and development of the Regular Investment community has solved this problem.
+During the process in which the Internet is constantly changing the world, the loneliness people who invest regularly is destined to suffer may be greatly relieved. The emergence and development of the Regular Investing community solved this problem.
 
-Herd mentality is considered to be not a good thing in the vast majority under most cases, but in a few cases, herd mentality also has great benefits. It's like it's hard to keep exercising at home, so you'd rather pay an annual fee, and would rather pay a higher coach fee, or even go to the gym to exercise as far away as you can. It is as if all the learning can be done by oneself, but in a class or dorm where one member is excellent, others will be more diligent, harder, and even better.
+Herd mentality is not considered to be a good thing most of the time, but in a few cases, herd mentality also has great benefits. It's like it's hard to exercise regularly at home, so you'd rather pay an annual fee, pay a high personal trainer fee or even go to the gym to exercise even though it's far. It is like even though you can learn all by yourself, but if you are in a class or dorm filled with excellent classmates, you will work more diligently and harder, and be better naturally.
 
-**Participating in a given investment community must be the optimal strategy.** If you want to vote for [BOX](https://b.watch), then you have to participate in the [b.watch community](https://b.watch). If you want to invest in US stocks or invest in Hong Kong stocks, then you can find ways to find the right quality vertical community online. why? Because if you are an outsider, you are difficult to be understood, because even for the same thing, under the same situation, the other party may hold the opposite opinion or feeling; not being understood might be acceptable, but you may even be despised - isn't this the most unnecessary dark loss? Have you experienced when a stupid person chastises you are the stupid one?
+**Joining a regular investing community is no doubt the optimal strategy.** If you want to invest in [BOX](https://b.watch) regularly, you have to join the [b.watch community](https://b.watch). If you want to invest in US stocks or invest in Hong Kong stocks, then you must find a way to join the right quality vertical community online. Why? Because if you are an outsider, it is difficult to understand whatever you said, because even for the same thing, under the same situation, others may hold the opposite opinion or feelings; not being understood might be acceptable, but you may even be despised - isn't that the most unnecessary  loss? Try to feel it!
 
-It’s not the same in the Regular Investment community. You’re a weirdo if you are not going to invest in a fixed way – that’s why many high-quality communities are quiet and important. Others are not important. It’s important to know that you have the same kind and you have the same way. You are not alone.
+It’s totally different in the Regular Investing community. You’re a weirdo if you don't invest regularly – this is the major reason why many high-quality communities are quiet. Nothing is more important than knowing that you have companions and you are not alone.
